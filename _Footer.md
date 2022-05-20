@@ -1,6 +1,6 @@
-KREBSY | aliberkyucelofficial
+[KREBSY | aliberkyucelofficial](https://chairmanoftheboardofdirectors.com)
 • Token Projeler
 • Sanat ve Eğlence
 • Eğlence ve Rekreasyon
 https://chairmanoftheboardofdirectors.com
-#aliberkyucelofficial #krebsy
+#aliberkyucelofficial #krebsyofficial
